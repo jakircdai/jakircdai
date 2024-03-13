@@ -2,7 +2,7 @@
 - 👀 I’m interested in programmetic SEO
 - 🌱 I’m currently learning cloud security
 - 💞️ I’m looking to collaborate on security
-- 📫 How to reach me mail@mdjakirhossain.com
+- 📫 How to reach me mail@mdjakirhossain.com, https://mdjakirhossain.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
